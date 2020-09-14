@@ -97,7 +97,7 @@ https://app.yinxiang.com/fx/10b6303c-c62b-4311-ae32-dd6613d04589
 <b>否则不予以通过！！！</b>
 
 <b>**现在加入随机免费赠送一份平台课程！**</b>
-(https://luxiweike-1300606535.cos.ap-guangzhou.myqcloud.com/2020/09/20200911070052391.png)
+![首页](https://luxiweike-1300606535.cos.ap-guangzhou.myqcloud.com/2020/09/20200911070052391.png)
 
 
 
